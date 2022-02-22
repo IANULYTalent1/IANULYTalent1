@@ -4,4 +4,4 @@ Hi, I’m @IANULYTalent1
 
 Competitive Salary + Equity. Fast growing venture backed Crypto/Blockchain Start ups. 
 
- If you are interested please send over your Resume(CV) & contact information to schedule an opening time to chat. 
+ If you are interested please send over your Resume(CV) & contact information to schedule an opening time to chat. Email owen@ianulytalentaccelerators.com
